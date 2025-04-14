@@ -2,7 +2,7 @@ https://rentry.co/grieferlulz
 I really dont have anything to pout here, so here's my noli & small comics 
 
 [![New-Drawing2-9.png](https://i.postimg.cc/Qd8mq9Gn/New-Drawing2-9.png)](https://postimg.cc/BXz2Svvx)
-[![New-Drawing3-2.png](https://i.postimg.cc/wjSj5Nnh/New-Drawing3-2.png)](https://postimg.cc/Snf4knSs) 
+[![New-Drawing3-3.png](https://i.postimg.cc/90nYJ1dm/New-Drawing3-3.png)](https://postimg.cc/YLQFS6DZ)
 [![New-Drawing5-1.png](https://i.postimg.cc/gkZ5X6q9/New-Drawing5-1.png)](https://postimg.cc/2VCTgyKT)
 [![New-Drawing3.png](https://i.postimg.cc/DzXd5q0F/New-Drawing3.png)](https://postimg.cc/NyQHj2RP)
 
