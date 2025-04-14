@@ -1,5 +1,5 @@
 https://rentry.co/grieferlulz 
-I really dont have anything to pout here, so here's my noli & small comics 
+I really dont have anything to put here, so here's my noli & small comics 
 
 [![New-Drawing2-9.png](https://i.postimg.cc/Qd8mq9Gn/New-Drawing2-9.png)](https://postimg.cc/BXz2Svvx)
 [![New-Drawing3-3.png](https://i.postimg.cc/90nYJ1dm/New-Drawing3-3.png)](https://postimg.cc/YLQFS6DZ)
@@ -11,7 +11,9 @@ zukatech x noli yaoi omg (im lying) (his btichass saw mafioso and thought it was
 [![Do-ILook-Like-Zukatech-1.png](https://i.postimg.cc/bwsN7gQX/Do-ILook-Like-Zukatech-1.png)](https://postimg.cc/pmMH8DGk)
 [![Do-ILook-Like-Zukatech-3.png](https://i.postimg.cc/ryjfbNVN/Do-ILook-Like-Zukatech-3.png)](https://postimg.cc/7bC1J7T5)
 
-i have a few more im just lazy to upload fan art
+i have a few more im just lazy to upload
+
+fan art
 
 [![bafkreigdjbhhv2kmmhf3ohgl3tqufhcuil52sb4y4w5pfy7qegl5hhswfa.jpg](https://i.postimg.cc/CKSL60L1/bafkreigdjbhhv2kmmhf3ohgl3tqufhcuil52sb4y4w5pfy7qegl5hhswfa.jpg)](https://postimg.cc/VJZ8d3tQ)
 
