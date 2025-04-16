@@ -5,6 +5,7 @@ I really dont have anything to put here, so here's my noli & small comics
 [![New-Drawing3-3.png](https://i.postimg.cc/90nYJ1dm/New-Drawing3-3.png)](https://postimg.cc/YLQFS6DZ)
 [![New-Drawing5-1.png](https://i.postimg.cc/gkZ5X6q9/New-Drawing5-1.png)](https://postimg.cc/2VCTgyKT)
 [![New-Drawing3.png](https://i.postimg.cc/DzXd5q0F/New-Drawing3.png)](https://postimg.cc/NyQHj2RP)
+[![N2-LISTRIKEEEEEE.png](https://i.postimg.cc/hPw23v6n/N2-LISTRIKEEEEEE.png)](https://postimg.cc/GHFP4Lbg)
 
 
 zukatech x noli yaoi omg (im lying) (his btichass saw mafioso and thought it was zukatech) 
